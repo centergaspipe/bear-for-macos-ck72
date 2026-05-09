@@ -1,4 +1,4 @@
-
+Bear for macOS exclusive Automation - quick search and AI assistant is the best Bear for macOS automation, featuring quick search and AI assistant. Safe, efficient, and optimized
 
 
 
